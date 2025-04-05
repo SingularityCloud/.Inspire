@@ -1,0 +1,1 @@
+- [Power On: The Story of Xbox | Chapter 1: The Renegades](https://youtu.be/AJYsA1jXf60)
